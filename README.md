@@ -1,1 +1,0 @@
-# Manajemen-peoyek-it
